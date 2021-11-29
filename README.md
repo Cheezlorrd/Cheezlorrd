@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Cheezlorrd
+- 👀 I’m interested in learning how to do art better
+- 🌱 I’m currently learning how to art
